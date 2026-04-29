@@ -128,4 +128,5 @@ This project is based on publicly available information about The Sydney Private
 
 **Stanley Okoye**
 Masters of Business Analytics
-Business Analyst Portfolio Project — March 2026
+BSc Economics
+[LinkedIn](www.linkedin.com/in/stanley-okoye-1a8a9a2a4/) · Business Analyst Portfolio Project — March 2026
